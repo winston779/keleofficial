@@ -1,6 +1,6 @@
 # 可乐云机场官网地址
 
-最新地址：[keleofficial.com](https://my.kele123.net/#/register?code=GEBEwb9p)
+最新地址：[keleofficial.com](https://panel.keleofficial.com/#/register?code=GEBEwb9p)
 
 ## 可乐云介绍
 
