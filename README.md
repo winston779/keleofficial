@@ -1,6 +1,6 @@
 # 可乐云机场官网地址
 
-最新地址：[可乐云.com](https://q0av6w.klwiuehge.top/#/login?code=O7vFVbZ6)
+最新地址：[可乐云.com](https://wuakdg.kleuge.top/#/register?code=O7vFVbZ6)
 
 ## 可乐云介绍
 
